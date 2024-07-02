@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vanshgarg2206
-- 👀 I’m interested in ...AIML AND CYBER SECURITY
+- 👀 I’m interested in ...AIML AND WEB DEVELOPMENT AND ALSO INTRESTED IN ELCTRONICS AND ROBOTIC
 - 🌱 I’m currently learning ...B.TECH AT NIT UK IN EEE DEPARTMENT 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...MAIL ID. VANSHAGARG22@GMAIL.COM
